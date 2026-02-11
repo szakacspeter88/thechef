@@ -1,4 +1,4 @@
-&nbspSuppen
+Suppen
 
 Kraftbrühe mit Mark                              5 Stück -
 Kraftbrühe mit Cherry                            1 cl
